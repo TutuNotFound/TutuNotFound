@@ -10,7 +10,7 @@ PS: IM HALF EGYPTIAN HALF NICARAGÜENSE!! IM NOT JAPANESE ;-;
 
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/65fbb8a2-9ee7-4226-810c-ca2a8c04a885" />
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/76585edf-0d24-4dda-abe3-359aecaac19d" />
-<img width="736" height="735" alt="Image" src="https://github.com/user-attachments/assets/cad7a447-e0e7-4eb2-988d-c02b1bd8944a" />
+
 
 "The night may seem endless right now. But one day, morning will come."
 
