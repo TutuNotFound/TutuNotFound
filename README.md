@@ -22,5 +22,7 @@ PS: IM HALF EGYPTIAN HALF NICARAGÜENSE!! IM NOT JAPANESE ;-;
 
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/f79e84d3-3949-40be-8c46-eaf38895adf2" />
 <img width="736" height="521" alt="Image" src="https://github.com/user-attachments/assets/51f9da96-23f8-4f35-bea7-bd5df2b339c2" />
-☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆
+☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆
 <img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/58ee475d-0c2f-47d7-8ec5-3c84f6bd5933" />
+
+Tutu/Suzu - This Readme Was Made On 7/28/2026.
