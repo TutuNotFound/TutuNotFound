@@ -3,4 +3,3 @@
 
 "The night may seem endless right now. But one day, morning will come."
 
-<img width="720" height="707" alt="Image" src="https://github.com/user-attachments/assets/d72c289f-3bfd-4b71-897a-d29bd557ded7" />
