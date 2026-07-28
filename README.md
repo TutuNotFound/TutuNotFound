@@ -1,6 +1,6 @@
 <img width="540" height="200" alt="Image" src="https://github.com/user-attachments/assets/79cd1ffc-d526-42a4-9073-75f15b0042de" />
 ☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆~☆
------- hey!
+ hey!
 ------ Hello ! im Tutu, but if you don't know me well, please call me Suzu.
 ------ Im a 17 year old teenager, my birthday is on jan 2, 2009, and im on my way of being a senior !  
 ------ Im a REALLY big fan of Suzume No Tojimari, i have the mangas, and have seen the movie! I really like Suzume, cause i (kinda) relate to her.  
