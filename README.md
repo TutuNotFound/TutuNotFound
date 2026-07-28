@@ -1,4 +1,4 @@
-<img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/43521698-e87c-45b5-8de0-79d355eb3b15" />
+<img width="540" height="200" alt="Image" src="https://github.com/user-attachments/assets/79cd1ffc-d526-42a4-9073-75f15b0042de" />
 ------ hey!
 ------ Hello ! im Tutu, but if you don't know me well, please call me Suzu.
 ------ Im a 17 year old teenager, my birthday is on jan 2, 2009, and im on my way of being a senior !  
@@ -23,3 +23,5 @@ PS: IM HALF EGYPTIAN HALF NICARAGÜENSE!! IM NOT JAPANESE ;-;
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/9d1ba994-acc7-4301-a44e-ea49b3bde1ed" />
 
 <img width="736" height="521" alt="Image" src="https://github.com/user-attachments/assets/51f9da96-23f8-4f35-bea7-bd5df2b339c2" />
+
+<img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/58ee475d-0c2f-47d7-8ec5-3c84f6bd5933" />
