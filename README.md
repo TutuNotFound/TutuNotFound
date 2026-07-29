@@ -19,7 +19,6 @@ PS: IM HALF EGYPTIAN HALF NICARAGÜENSE!! IM NOT JAPANESE ;-;
 
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/c361c190-deec-4c7f-8737-4feca1d9c230" />
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/37c8c553-2a41-43b6-bb88-16cd5c2518bd" />
-<img width="736" height="724" alt="Image" src="https://github.com/user-attachments/assets/983c2929-be1e-4158-ac4e-2251b3b38e9a" />
 
 "I can't live in a world without Souta..."
 
