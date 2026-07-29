@@ -30,5 +30,3 @@ PS: IM HALF EGYPTIAN HALF NICARAGÜENSE!! IM NOT JAPANESE ;-;
 
 Tutu/Suzu - This Readme Was Made On 7/28/2026.
 
-<img width="317" height="278" alt="Image" src="https://github.com/user-attachments/assets/6788a2a7-8d14-4557-b3e0-b26c3c3fe546" />
-LESBIANS
