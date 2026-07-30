@@ -15,3 +15,4 @@ ps: pls w2i if you see me on menu.
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/8c4ca857-a67f-4ffb-bd3c-f0db95909ed3" />
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/84c2ed2b-03ee-4935-b4a9-125db4bff46a" />
 <img width="224" height="224" alt="Image" src="https://github.com/user-attachments/assets/78c98ce3-ca13-4c8a-9783-bb7b7e971998" />
+IM FUCKING GOING CRAZY I CAN'T DECIDE HOW MY GITHUB LOOKS LIKE
