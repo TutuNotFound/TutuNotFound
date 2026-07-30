@@ -9,9 +9,7 @@ ps: pls w2i if you see me on menu.
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/c6d243e3-77a0-42ac-9fdc-0c1bbb98359a" />
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/64d2d09e-1063-4048-a843-478d109683b8" />
 <img width="735" height="493" alt="Image" src="https://github.com/user-attachments/assets/c265da5b-0bfe-4c85-a9bb-d1e12ba8213f" />
-<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/2adcb580-00de-4d3b-9534-8ed681dd28e7" />
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/337623c1-016c-471a-b335-2ff42b3e03f0" />
-<img width="730" height="720" alt="Image" src="https://github.com/user-attachments/assets/6c3953fd-c865-4778-a731-a5d2d4484e5f" />
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/8c4ca857-a67f-4ffb-bd3c-f0db95909ed3" />
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/84c2ed2b-03ee-4935-b4a9-125db4bff46a" />
 <img width="224" height="224" alt="Image" src="https://github.com/user-attachments/assets/78c98ce3-ca13-4c8a-9783-bb7b7e971998" />
