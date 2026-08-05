@@ -2,7 +2,7 @@
 ♧~♧~♧~♧~♧~♧~♧~♧~♧~♧~♧~♧~♧-♧
 <img width="400" height="295" alt="Image" src="https://github.com/user-attachments/assets/066b6f2a-4e1c-4deb-955a-8183677b54dd" />
       hi !
-      im tutu, i have been on PT since 2024, so i have been playing for 2 years. I am 17, i was born on jan 2, 2009.  v characters from different fandoms are; Two and Three : TPoT/XFHOV , Rice Shower : Uma Musume (Pretty Derby) , Hermes : Greek Mythology/Epic the Musical , and Suzume : Suzume No Tojimari !
+      im tutu, i have been on PT since 2024, so i have been playing for 2 years. I am 17, i was born on jan 2, 2009. pssps, my fav characters from different fandoms are; Two and Three : TPoT/XFHOV , Rice Shower : Uma Musume (Pretty Derby) , Hermes : Greek Mythology/Epic the Musical , and Suzume : Suzume No Tojimari !
       
       DNI IF : you are homophohic, transphobic, racist, supports tr*mp, etc. pls do not cover unless i know u... ok... yes im targetting those people (not friends) that keep covering me without permission....
 
