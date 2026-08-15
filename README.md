@@ -24,3 +24,17 @@ facts about me !!
 - mitski is my favorite music artist, shes my #1 in my spotify !
 - i have been having artblock, but im an artist!
 - i absolutely have a bad hyperfixation with ahmad (Work In Progress) and Two (TPoT)
+
+<img width="286" height="280" alt="Image" src="https://github.com/user-attachments/assets/33bc5b2c-1e5a-43a6-aade-b8c44470ced6" />
+
+You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i might be either;
+- doing a skin
+- shading skins
+- renaming skins
+- searching skins on the trash bin
+
+  i appreciate people talking to me, i would be glad to talk to you (unless youre problematic)!! I have a really bad habit of making/getting into conflicts for no reason ;-; , so if you see me, js talk to me or smth.
+
+  DNI : racist people, transphobic + homophobic people, tr*mp / epst*in supporters, HH/HB fans, qw*l supporters, and people less than 12.
+
+  dyllita if youre reading this, yes u can int bro
