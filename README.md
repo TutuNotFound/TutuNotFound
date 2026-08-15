@@ -19,8 +19,8 @@ My Pronouns are He/Him. if you misgender me, just you know i will ignore you !!
 
 
 facts about me !!
-- im half egyptian half nicaragüense (🇪🇬/🇳🇮), so im mixed!
-- i have a cat called mina, shes adorable, i love her, shes my one and only ♡
-- mitski is my favorite music artist, shes my #1 in my spotify !
-- i have been having artblock, but im an artist!
-- i absolutely have a bad hyperfixation with ahmad (Work In Progress) and Two (TPoT)
+🍥 - im half egyptian half nicaragüense (🇪🇬/🇳🇮), so im mixed!
+🍥 - i have a cat called mina, shes adorable, i love her, shes my one and only ♡
+🍥 - mitski is my favorite music artist, shes my #1 in my spotify !
+🍥 - i have been having artblock, but im an artist!
+🍥 - i absolutely have a bad hyperfixation with ahmad (Work In Progress) and Two (TPoT)
