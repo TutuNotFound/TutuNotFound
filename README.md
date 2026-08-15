@@ -2,4 +2,4 @@
 
 <img width="152" height="145" alt="Image" src="https://github.com/user-attachments/assets/e536f924-dcb2-40a8-b5b3-db13b4b01ed6" />
 
-your girlfriend is SO lame, conan 🤫 (targetter irl)
+your girlfriend is SO lame, will 🤫 (targetted irl)
