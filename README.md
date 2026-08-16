@@ -37,4 +37,4 @@ You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i m
 
   DNI : racist people, transphobic + homophobic people, tr*mp / epst*in supporters, HH/HB fans, qw*l supporters, and people less than 12.
 
-  dyllita if youre reading this, yes u can int bro
+  dyllita and fork, if youre reading this, yes u can int ure my friends
