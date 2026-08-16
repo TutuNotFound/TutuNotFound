@@ -13,7 +13,7 @@ hey, i really need to take like half of your time. Im Tutu, but if you dont know
 
 NO DANTE . TUTU IS NOT SHORT FOR TUNG TUNG.
 
-anyways. Im 17 years old, january 2 is my bday, im gay (yes literally), and transmasculine! (Female --> Male).
+anyways. Im 17 years old, january 2 is my bday, im pans , and transmasculine! (Female --> Male).
 
 My Pronouns are He/Him. if you misgender me, just you know i will ignore you !!
 
