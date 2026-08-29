@@ -39,5 +39,5 @@ You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i m
 
   dyllita and fork, if youre reading this, yes u can int ure my friends
 
-
-https://github.com/user-attachments/assets/6f734b34-9e19-4a73-9105-0c7ccab95c65
+art made by me :3
+<img width="2782" height="2703" alt="Image" src="https://github.com/user-attachments/assets/94711274-0ec3-4bad-835d-c4ca37c08275" />
