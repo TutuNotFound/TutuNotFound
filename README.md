@@ -36,13 +36,14 @@ You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i m
   i appreciate people talking to me, i would be glad to talk to you (unless youre problematic)!! I have a really bad habit of making/getting into conflicts for no reason ;-; , so if you see me, js talk to me or smth.
 
   DNI : racist people, transphobic + homophobic people, tr*mp / epst*in supporters, HH/HB fans, qw*l supporters, and people less than 12.
-
-
-
-
-
-
-
-
-
-  i desperately need to see my sister. i hate my life.
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-      i desperately need to see my sister. i hate my life.
