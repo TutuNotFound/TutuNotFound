@@ -25,7 +25,7 @@ facts about me !!
 - i have been having artblock, but im an artist!
 - i absolutely have a bad hyperfixation with ahmad (Work In Progress) and Two (TPoT)
 
-<img width="286" height="280" alt="Image" src="https://github.com/user-attachments/assets/33bc5b2c-1e5a-43a6-aade-b8c44470ced6" />
+<img width="1063" height="1080" alt="Image" src="https://github.com/user-attachments/assets/1c95b51a-b1e7-41c5-8632-1640ec37fb24" />
 
 You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i might be either;
 - doing a skin
