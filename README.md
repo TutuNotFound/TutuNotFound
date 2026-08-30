@@ -39,11 +39,4 @@ You may c + h with me , but pls ask before c + h. Whisper me if im on menu ! i m
 -
 -
 -
--
--
--
--
--
--
--
--      i desperately need to see my sister. i hate my life.
+<img width="1903" height="1080" alt="Image" src="https://github.com/user-attachments/assets/a21a6000-1389-4fe5-be31-3306d79442bb" />
