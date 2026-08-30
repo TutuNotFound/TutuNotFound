@@ -7,7 +7,7 @@
 
 -
 
-<img width="720" height="960" alt="Image" src="https://github.com/user-attachments/assets/8d97d373-7305-40ac-a18f-ad4b46bc1c34" />
+<img width="565" height="608" alt="Image" src="https://github.com/user-attachments/assets/a57a0c38-e101-4414-aced-c8149126952d" />
 
 hey, i really need to take like half of your time. Im Tutu, but if you dont know me well, call me Conan. I would love for my friends to call me Conan, i love it as much as they call me tutu <3. 
 
