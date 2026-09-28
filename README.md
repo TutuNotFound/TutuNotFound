@@ -8,5 +8,5 @@
 -
 
 
-<img width="1903" height="1080" alt="Image" src="https://github.com/user-attachments/assets/a21a6000-1389-4fe5-be31-3306d79442bb" />
-this is a Work In Progress ! (pun intended)
+<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/37b318dc-cac7-4bab-abf4-15e33664c041" />
+this github is a wip,, i guess
