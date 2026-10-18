@@ -8,5 +8,4 @@
 -
 
 
-<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/37b318dc-cac7-4bab-abf4-15e33664c041" />
-this github is a wip,, i guess
+<img width="352" height="232" alt="Image" src="https://github.com/user-attachments/assets/28d0c944-551d-47be-8396-d2f253f390a3" />
