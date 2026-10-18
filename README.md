@@ -3,7 +3,7 @@
 
 -
 
-"I'll be watching you.." 
+"I can't fix you.."
 
 -
 
@@ -33,5 +33,5 @@ tiniest fun facts about me ! ! !
 
 i really get too comfortable with my friends... So FRIENDS , feel SO SO SO free to c+h , interact when im alone , and PLEASE , 
 
-        do not leave me if im having suicidal thoughts/venting/uncomfortable.. im really lonely.
+        do not leave me if im having suicidal thoughts/venting... im really lonely, and have almost no one to talk to, exepct 4 of my friends, and my girlfriend...
 
