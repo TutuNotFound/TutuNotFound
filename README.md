@@ -19,3 +19,8 @@ tiniest fun facts about me ! ! !
 ----------------------------------
 - I am an immigrant! i am from a country in Central America called "Nicaragua", i am currently living in the United States !! [🇳🇮/🇺🇸]
 - I have a cat thats named "Roku" (yes after the tv), and it's a female ! shes a ginger cat , and I adopted her last year on november, i just didn't want to share it to the public yet
+- I have many kins ! Most of them which I mostly kin/talk about are;
+- Dipper Pines (Gravity Falls)
+- Natsuki (DDLC)
+- GIFfany (Gravity Falls)
+  Although I might list more when i actually remember the other ones LMFAO
