@@ -9,3 +9,7 @@
 
 
 <img width="352" height="232" alt="Image" src="https://github.com/user-attachments/assets/28d0c944-551d-47be-8396-d2f253f390a3" />
+
+* Oh my god , hello !!
+* My name is Conan , but mostly known as Tutu as the locals call me , im a pretty kind person , but i do sometimes get angry at the littlest things TwT...
+* I have been diagnosed with Autism on 2023 , so i am NOT faking my autism (yes to those who did those allegations of me faking my autism im talking to you)
