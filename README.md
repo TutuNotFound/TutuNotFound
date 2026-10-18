@@ -24,3 +24,8 @@ tiniest fun facts about me ! ! !
 - Natsuki (DDLC)
 - GIFfany (Gravity Falls)
   Although I might list more when i actually remember the other ones LMFAO
+- i am FUCKING TAKEN. yes im talking to those edaters who try to kiss me and say "hey i like u talk to me" (targetted), my GF's name is Roxie , she's transfem , and is also the same age as me! <333
+- I am a transmasculine MAN , my pronouns are He/Him, and im also planning to get a chest surgery as soon as im 18!
+
+
+
