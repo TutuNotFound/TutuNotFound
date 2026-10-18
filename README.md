@@ -29,3 +29,9 @@ tiniest fun facts about me ! ! !
 
 
 
+<img width="600" height="367" alt="Image" src="https://github.com/user-attachments/assets/7aeb4549-630f-4d72-b488-d1f6389ccade" />
+
+i really get too comfortable with my friends... So FRIENDS , feel SO SO SO free to c+h , interact when im alone , and PLEASE , 
+
+        do not leave me if im having suicidal thoughts/venting/uncomfortable.. im really lonely.
+
