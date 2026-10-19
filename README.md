@@ -35,5 +35,5 @@ tiniest fun facts about me ! ! !
 
 i really get too comfortable with my friends... So FRIENDS ( and people !!) , feel SO SO SO free to c+h , interact when im alone , and PLEASE , 
 
-        do not leave me if im having suicidal thoughts/venting... im really lonely, and have almost no one to talk to, exepct 4 of my friends, and my girlfriend...
+        do not leave me if im having suicidal thoughts/venting... im really lonely, and have almost no one to talk to, exepct 2 of my friends, and my girlfriend...
 
