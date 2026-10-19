@@ -8,7 +8,7 @@
 -
 
 
-<img width="245" height="250" alt="Image" src="https://github.com/user-attachments/assets/edff5a79-41d3-42d0-9462-0bc29885b43e" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/009b6779-6e21-4cfa-b532-c9647484d6c0" />
 
   * Oh my god , hello !!
   * My name is Conan , but mostly known as Tutu as the locals call me , im a pretty kind person , but i do sometimes get angry at the littlest things TwT...
