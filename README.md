@@ -3,7 +3,7 @@
 
 -
 
-"I can't fix you.."
+"KILL ME, JERUSALEM"
 
 -
 
