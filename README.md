@@ -8,7 +8,7 @@
 -
 
 
-<img width="352" height="232" alt="Image" src="https://github.com/user-attachments/assets/28d0c944-551d-47be-8396-d2f253f390a3" />
+<img width="245" height="250" alt="Image" src="https://github.com/user-attachments/assets/edff5a79-41d3-42d0-9462-0bc29885b43e" />
 
   * Oh my god , hello !!
   * My name is Conan , but mostly known as Tutu as the locals call me , im a pretty kind person , but i do sometimes get angry at the littlest things TwT...
@@ -23,7 +23,7 @@ tiniest fun facts about me ! ! !
 - Dipper Pines (Gravity Falls)
 - Natsuki (DDLC)
 - GIFfany (Gravity Falls)
-  Although I might list more when i actually remember the other ones LMFAO
+- Haruhi (Ouran Highschool: Host Club)
 - i am FUCKING TAKEN. yes im talking to those edaters who try to kiss me and say "hey i like u talk to me" (targetted), my GF's name is Roxie , she's transfem , and is also the same age as me! <333
 - I am a transmasculine MAN , my pronouns are He/Him, and im also planning to get a chest surgery as soon as im 18!
 
