@@ -39,9 +39,9 @@ i really get too comfortable with my friends... So FRIENDS ( and people !!) , fe
 
 
 <img width="400" height="295" alt="Image" src="https://github.com/user-attachments/assets/f624bd93-20ae-445e-9b85-601bb74a2c22" />
-* I LOVE LOVE LOVE NEW PEOPLE!!
- * New people are like the best people you'll ever meet, they're either kind, mean, or betray you and say they're not your friend, and that their friend suddenly attacks and harasses you for no fucking reason !! >w<
-  * So if you ever see me alone , PLEASE PLEASE PLEASE int!!!!
+*I LOVE LOVE LOVE NEW PEOPLE!!
+*New people are like the best people you'll ever meet, they're either kind, mean, or betray you and say they're not your friend, and that their friend suddenly attacks and harasses you for no fucking reason !! >w<
+*So if you ever see me alone , PLEASE PLEASE PLEASE int!!!!
 * I am a great person. Don't let those weirdos drop fake information about me.
 
 * MOVING ON !!
