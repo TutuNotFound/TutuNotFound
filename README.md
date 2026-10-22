@@ -47,8 +47,9 @@ New people are like the best people you'll ever meet, they're either kind, mean,
 * MOVING ON !!
 
 
+<img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/ce99ac0f-195f-4b05-a7cc-d49f73df6a55" />
+
+* i sadly do have an addiction.. I'm trying my best to quit.. but i cant..
 
 
-
-
-         its so funny how you say you hate me but still have me followed L_L
+         14 more days until im out of this world!!! (if it works.)
