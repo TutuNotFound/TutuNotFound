@@ -51,4 +51,4 @@ New people are like the best people you'll ever meet, they're either kind, mean,
 
 
 
-         its so funny how you say you hate me but still have me followed ♡
+         its so funny how you say you hate me but still have me followed L_L
