@@ -45,3 +45,10 @@ New people are like the best people you'll ever meet, they're either kind, mean,
  I am great person. Don't let those weirdos drop fake information about me.
 
 * MOVING ON !!
+
+
+
+
+
+
+         im so done with this shit , i hate everyone.
