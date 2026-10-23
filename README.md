@@ -26,6 +26,7 @@ tiniest fun facts about me ! ! !
 - Natsuki (DDLC)
 - GIFfany (Gravity Falls)
 - Haruhi (Ouran Highschool: Host Club)
+- Shadow Milk Cookie (Cookie run Kingdom)
 - i am FUCKING TAKEN. yes im talking to those edaters who try to kiss me and say "hey i like u talk to me" (targetted), my GF's name is Roxie , she's transfem , and is also the same age as me! <333
 - I am a transmasculine MAN , my pronouns are He/Him, and im also planning to get a chest surgery as soon as im 18!
 
@@ -52,4 +53,14 @@ New people are like the best people you'll ever meet, they're either kind, mean,
 * i sadly do have an addiction.. I'm trying my best to quit.. but i cant..
 
 
-         14 more days until im out of this world!!! (if it works.)
+
+<img width="736" height="511" alt="Image" src="https://github.com/user-attachments/assets/29ed7916-011d-4479-bdee-947be070da33" />
+
+* Don't expect me to be nice , i might respond to you in a mean tone (unless ik u or ure my bsf/cf!!) ! ♡
+* I am usually sarcastic and sometimes cuss when we're having a conversation , so don't be surprised or be angry at me !!
+
+* I laugh at the most SERIOUS things , sometimes . . . But eh , im chill either way !
+
+
+
+I SHOULDVE STAYED CURIOUS.
