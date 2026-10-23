@@ -55,7 +55,7 @@ New people are like the best people you'll ever meet, they're either kind, mean,
 
 
 <img width="736" height="511" alt="Image" src="https://github.com/user-attachments/assets/29ed7916-011d-4479-bdee-947be070da33" />
-
+     looks at you with my seductive eyes
 * Don't expect me to be nice , i might respond to you in a mean tone (unless ik u or ure my bsf/cf!!) ! ♡
 * I am usually sarcastic and sometimes cuss when we're having a conversation , so don't be surprised or be angry at me !!
 
