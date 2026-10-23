@@ -8,59 +8,9 @@
 -
 
 
-<img width="320" height="240" alt="Image" src="https://github.com/user-attachments/assets/d02e4c21-0bcb-4042-8d91-4707dd04d5b4" />
-
-  * Oh my god , hello !!
-  * My name is Conan , but mostly known as Tutu as the locals call me , im a pretty kind person , but i do sometimes get angry at the littlest things TwT...
-
-          if we are not friends call me conan.    
-  * I have been diagnosed with Autism on 2023 , so i am NOT faking my autism (yes to those who did those allegations of me faking my autism im talking to you)
-
-
-tiniest fun facts about me ! ! !
-----------------------------------
-- I am an immigrant! i am from a country in Central America called "Nicaragua", i am currently living in the United States !! [🇳🇮/🇺🇸]
-- I have a cat thats named "Roku" (yes after the tv), and it's a female ! shes a ginger cat , and I adopted her last year on november, i just didn't want to share it to the public yet
-- I have many kins ! Most of them which I mostly kin/talk about are;
-- Dipper Pines (Gravity Falls)
-- Natsuki (DDLC)
-- GIFfany (Gravity Falls)
-- Haruhi (Ouran Highschool: Host Club)
-- Shadow Milk Cookie (Cookie run Kingdom)
-- i am FUCKING TAKEN. yes im talking to those edaters who try to kiss me and say "hey i like u talk to me" (targetted), my GF's name is Roxie , she's transfem , and is also the same age as me! <333
-- I am a transmasculine MAN , my pronouns are He/Him, and im also planning to get a chest surgery as soon as im 18!
-
-
-
-<img width="600" height="367" alt="Image" src="https://github.com/user-attachments/assets/7aeb4549-630f-4d72-b488-d1f6389ccade" />
-
-i really get too comfortable with my friends... So FRIENDS ( and people !!) , feel SO SO SO free to c+h , interact when im alone , and PLEASE , 
-
-        do not leave me if im having suicidal thoughts/venting... im really lonely, and have almost no one to talk to, exepct 2 of my friends, and my girlfriend...
-
-
-<img width="400" height="295" alt="Image" src="https://github.com/user-attachments/assets/f624bd93-20ae-445e-9b85-601bb74a2c22" />
-I LOVE LOVE LOVE NEW PEOPLE!!
-New people are like the best people you'll ever meet, they're either kind, mean, or betray you and say they're not your friend, and that their friend suddenly attacks and harasses you for no fucking reason !! >w<
- So if you ever see me alone , PLEASE PLEASE PLEASE int!!!! 
- I am great person. Don't let those weirdos drop fake information about me.
-
-* MOVING ON !!
-
-
-<img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/ce99ac0f-195f-4b05-a7cc-d49f73df6a55" />
-
-* i sadly do have an addiction.. I'm trying my best to quit.. but i cant..
-
-
 
 <img width="736" height="511" alt="Image" src="https://github.com/user-attachments/assets/29ed7916-011d-4479-bdee-947be070da33" />
 
-* Don't expect me to be nice , i might respond to you in a mean tone (unless ik u or ure my bsf/cf!!) ! ♡
-* I am usually sarcastic and sometimes cuss when we're having a conversation , so don't be surprised or be angry at me !!
+HHHAAAAAHHHHH THIS IS A WIP YOU SUCKER !1! YOU GOT TRICKED HHAAAAHHHH!!!!!!!!!!!!!!!!!!!NEW PUPPET UNLOCKED !!!!YOURE AT M!!MY MERC!!!Y!!!!!!!!!!!!! 
 
-* I laugh at the most SERIOUS things , sometimes . . . But eh , im chill either way !
-
-
-
-I SHOULDVE STAYED CURIOUS.
+wait until this is done ok xoxo , conan
