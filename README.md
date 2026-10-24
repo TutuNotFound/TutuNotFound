@@ -13,5 +13,4 @@
 
 HHHAAAAAHHHHH THIS IS A WIP YOU SUCKER !1! YOU GOT TRICKED HHAAAAHHHH!!!!!!!!!!!!!!!!!!!NEW PUPPET UNLOCKED !!!!YOURE AT M!!MY MERC!!!Y!!!!!!!!!!!!! 
 
-ok im tired of this shit bro its he/him not "she/her" . HE, FUCKING, HIM. 
-anyways this wip will prob be finishes in any of these days idk??!?!?!??!?!??!!??¿¿¿????????????? 
+days go by very fast, huh? <3
