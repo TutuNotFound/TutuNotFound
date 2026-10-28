@@ -12,12 +12,7 @@ Introductory <3
 
 <img width="600" height="338" alt="Image" src="https://github.com/user-attachments/assets/5296cb41-02e7-4186-89f1-4b79f1cf7cd2" />
 * Oh Hello There !
-* My name is Conan , mostly known as "Tutu" on the internet . If we are NOT friends / we don't know eachother , call me Conan for a while until we know eachother more . (^∇^)
-* am 17 years old ! My birthday is on Jan 2nd, 2009 .  (o＾・＾o)
-* I am a bilingual person , I am half egyptian , half Nicaragüense . (🇳🇮 / 🇪🇬) I am NOT american , nor asian !
-* I'm a TRANSMASCULINE person (Female --> Male.) , so I am known as He/Him . If you misgender me when I corrected you already , I'm blocking you for good !! (^.^)
-
-
+remaking ts ok bdo
   Tiny Fun Facts !
   --------------------
   * I have a cat called Roku , I adopted her on December , I just didn't want to share her on the internet before ! :>
