@@ -7,10 +7,20 @@
 
 -
 
+Introductory <3
+--------------------
+
+<img width="600" height="338" alt="Image" src="https://github.com/user-attachments/assets/5296cb41-02e7-4186-89f1-4b79f1cf7cd2" />
+* Oh Hello There !
+* My name is Conan , mostly known as "Tutu" on the internet . If we are NOT friends / we don't know eachother , call me Conan for a while until we know eachother more . (^∇^)
+* I am 17 years old ! My birthday is on Jan 2nd, 2009 .  (o＾・＾o)
+* I am a bilingual person , I am half egyptian , half Nicaragüense . (🇳🇮 / 🇪🇬) I am NOT american , nor asian !
+* I'm a TRANSMASCULINE person (Female --> Male.) , so I am known as He/Him . If you misgender me when I corrected you already , I'm blocking you for good !! (^.^)
 
 
-<img width="736" height="511" alt="Image" src="https://github.com/user-attachments/assets/29ed7916-011d-4479-bdee-947be070da33" />
-
-HHHAAAAAHHHHH THIS IS A WIP YOU SUCKER !1! YOU GOT TRICKED HHAAAAHHHH!!!!!!!!!!!!!!!!!!!NEW PUPPET UNLOCKED !!!!YOURE AT M!!MY MERC!!!Y!!!!!!!!!!!!! 
-
-intwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithmeintwithme.
+  Tiny Fun Facts !
+  --------------------
+  * I have a cat called Roku , I adopted her on December , I just didn't want to share her on the internet before ! :>
+  * I have a GIRLFRIEND (shocking huh) , so don't come up at me and be like "Hey i like u talk to me" , "Ure so pretty i want u" , etc. etc (HEAVILY TARGETTED). Anyways. My Gf's name is Roxie , she's transfem , and she is 17 aswell! (yes i got permission to say this)
+  * I'm autistic , so I might be a little weird with my obsessions (?) , Yes I got medically tested by an expert doctor , and got conditioned with autism on 2023.
+  * I sadly do have an addiction to smoking cigarettes . I have been trying to quit , and it's going well so far ! Motivation from other people can help me quit more faster , especially from friends ! 
