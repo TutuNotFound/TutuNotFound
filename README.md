@@ -12,7 +12,9 @@ Introductory <3
 
 <img width="600" height="338" alt="Image" src="https://github.com/user-attachments/assets/5296cb41-02e7-4186-89f1-4b79f1cf7cd2" />
 * Oh Hello There !
-remaking ts ok bdo
+* im remaking ghis ok be patient
+
+
   Tiny Fun Facts !
   --------------------
   * I have a cat called Roku , I adopted her on December , I just didn't want to share her on the internet before ! :>
