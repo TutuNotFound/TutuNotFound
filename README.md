@@ -3,7 +3,7 @@
 
 -
 
-"KILL ME, JERUSALEM"
+"BLAME CANADA! BLAME CANADA!"
 
 -
 
