@@ -11,6 +11,7 @@ Introductory <3
 --------------------
 
 <img width="600" height="338" alt="Image" src="https://github.com/user-attachments/assets/5296cb41-02e7-4186-89f1-4b79f1cf7cd2" />
+
 * Oh Hello There !
 * My name is Conan, mostly known as Tutu in the internet. If we DON'T know eachother, call me Conan, or "C" for the moment.
 * I am 17 years old !!!!!!!!!!!!! I was born on jan 2nd, 2009. Mind you, i celebrate my bday on jan 5 mostly, i do'nt mind people wishing me the birthday wishes on jan 2 tho!
