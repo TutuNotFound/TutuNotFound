@@ -3,7 +3,7 @@
 
 -
 
-"Would you let me be your daddy, come here, sit on my kneee ! ♡ ~"
+"09:04 PM[Soohorang (C+h int freely)] thinks: NO DONT BLOCK ME PAPI" (yes my title for the day)
 
 -
 
