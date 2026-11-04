@@ -27,3 +27,7 @@ Introductory <3
   * I have a GIRLFRIEND (shocking huh) , so don't come up at me and be like "Hey i like u talk to me" , "Ure so pretty i want u" , etc. etc (HEAVILY TARGETTED). Anyways. My Gf's name is Roxie , she's transfem , and she is 17 aswell! (yes i got permission to say this)
   * I'm autistic , so I might be a little weird with my obsessions (?) , Yes I got medically tested by an expert doctor , and got diagnosed with autism on 2023.
   * I sadly do have an addiction to smoking cigarettes . I have been trying to quit , and it's going well so far ! Motivation from other people can help me quit more faster , especially from friends ! 
+
+<img width="735" height="518" alt="Image" src="https://github.com/user-attachments/assets/05d2e646-7d2d-47a3-9ada-8f1dda6e3f61" />
+
+ hahh,,,, me if i keep being a miserable piece of shit to *SOME* people ♡♡
