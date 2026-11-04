@@ -3,7 +3,7 @@
 
 -
 
-"09:04 PM[Soohorang (C+h int freely)] thinks: NO DONT BLOCK ME PAPI" (yes my title for the day)
+"I Don't Hate you, But You Need To Stay Out Of My Way."
 
 -
 
