@@ -31,3 +31,5 @@ Introductory <3
 <img width="735" height="518" alt="Image" src="https://github.com/user-attachments/assets/05d2e646-7d2d-47a3-9ada-8f1dda6e3f61" />
 
  hahh,,,, me if i keep being a miserable piece of shit to *SOME* people ♡♡
+
+<img width="712" height="716" alt="Image" src="https://github.com/user-attachments/assets/875ca489-a14d-4dc2-a37a-4029e597d397" />
