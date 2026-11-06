@@ -34,10 +34,7 @@ Introductory <3
 * im the ULTIMATE CEO of twonine, i dont believe in any other ships other than fourthree and twonine 🎉
 * now if YOU harass me over my ship, then theres a high chance ill block u forever and ever !!! <3 (unless i unblock u for some reason)
 
-<img width="460" height="460" alt="Image" src="https://github.com/user-attachments/assets/9c666e87-9458-47c7-a735-a3d4fea70de9" />
 
-(and this)
-  
 <img width="735" height="518" alt="Image" src="https://github.com/user-attachments/assets/05d2e646-7d2d-47a3-9ada-8f1dda6e3f61" />
 
  hahh,,,, me if i keep being a miserable piece of shit to *SOME* people ♡♡
