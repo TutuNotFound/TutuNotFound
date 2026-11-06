@@ -28,6 +28,13 @@ Introductory <3
   * I'm autistic , so I might be a little weird with my obsessions (?) , Yes I got medically tested by an expert doctor , and got diagnosed with autism on 2023.
   * I sadly do have an addiction to smoking cigarettes . I have been trying to quit , and it's going well so far ! Motivation from other people can help me quit more faster , especially from friends ! 
 
+<img width="735" height="593" alt="Image" src="https://github.com/user-attachments/assets/66be31c9-1522-49eb-83cc-222aba085892" />
+
+* art not mine i forgot who it was from but its from pin
+* im the ULTIMATE CEO of twonine, i dont believe in any other ships other than fourthree and twonine 🎉
+* now if YOU harass me over my ship, then theres a high chance ill block u forever and ever !!! <3 (unless i unblock u for some reason)
+
+  
 <img width="735" height="518" alt="Image" src="https://github.com/user-attachments/assets/05d2e646-7d2d-47a3-9ada-8f1dda6e3f61" />
 
  hahh,,,, me if i keep being a miserable piece of shit to *SOME* people ♡♡
