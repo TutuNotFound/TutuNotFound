@@ -14,6 +14,8 @@ Introductory <3
 
 * Oh Hello There !
 * My name is Conan, mostly known as Tutu in the internet. If we DON'T know eachother, call me Conan, or "C" for the moment.
+* BUTTT!!! IF WE WERE FRIENDS FOR 1 YEAR OR MORE (or i simply just like u) FEEL SO FREE TO CALL ME SAM !! *🩷🩷*
+
 * I am 17 years old !!!!!!!!!!!!! I was born on jan 2nd, 2009. Mind you, i celebrate my bday on jan 5 mostly, i do'nt mind people wishing me the birthday wishes on jan 2 tho!
 * i LOVE, LOVE, LOVE MITSKI !!!!!!!! Mitski has been my #1 most player music artist on spotify for 3 years in a row now !!! Mitski is my comfort person, her music relaxes me in a way that makes you like, sleep in a cloud yk? :]
 * As you can see, im a Shadow Milk Cookie fan, and fictionkin (relate to a fictional character). So if you ever catch me wearing a Smilk skin, feel so free to interact and ask questions on how i relate to him!
