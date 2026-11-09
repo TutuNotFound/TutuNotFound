@@ -36,9 +36,13 @@ Introductory <3
 * im the ULTIMATE CEO of twonine, i dont believe in any other ships other than fourthree and twonine 🎉
 * now if YOU harass me over my ship, then theres a high chance ill block u forever and ever !!! <3 (unless i unblock u for some reason)
 
+MY OCS !!
+----------
 
-<img width="735" height="518" alt="Image" src="https://github.com/user-attachments/assets/05d2e646-7d2d-47a3-9ada-8f1dda6e3f61" />
+<img width="2218" height="2703" alt="Image" src="https://github.com/user-attachments/assets/bdd2a579-1634-4217-b695-c3dbc8676278" />
 
- hahh,,,, me if i keep being a miserable piece of shit to *SOME* people ♡♡
-
-<img width="712" height="716" alt="Image" src="https://github.com/user-attachments/assets/875ca489-a14d-4dc2-a37a-4029e597d397" />
+* Here are 2 of my ocs, they're both women, and lesbian (happilymarried.)!
+* Cyan Haired one is called Milan , she's 21 , and is energetic !
+* Black Haired one is called Ringo , she's 22 , and is not so energetic .
+* pss.. whisper me for their lore drop! just say which one in whispers/atabook (ATABOOK IS A WIP ILL NEVER FINISH!!) and ill send it to u immediately!!
+* *DO NOT TAKE INSPO/COPY OF MY OCS*. They were my first ocs ever made , say I made them in probably 2022? So i JUST remembered both of them on 2026!
