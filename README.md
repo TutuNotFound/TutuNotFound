@@ -1,11 +1,4 @@
-<img width="872" height="147" alt="Image" src="https://github.com/user-attachments/assets/4330b8e3-ba47-4431-b405-62a60f51e182" />
-♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - ♧ - 
-
--
-
-"I Don't Hate you, But You Need To Stay Out Of My Way."
-
--
+<img width="4147" height="2003" alt="Untitled6_20261125121508" src="https://github.com/user-attachments/assets/64234213-cdcb-415a-ab99-794e81cafac1" />
 
 
 <div align="center">
