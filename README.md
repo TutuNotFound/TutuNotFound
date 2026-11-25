@@ -10,10 +10,10 @@
 
 <div align="center">
 
-$\color{#d91111}{\textsf{Wow.. Wouldn't you miss me if I killed myself, Huh?}}$
+$\color{#d91111}{\textsf{Wow.. Wouldn't you miss me if I killed myself?}}$
 
-$\color{#d91111}{\textsf{I don't think you would miss me either way, you still hate me. }}$
+$\color{#d91111}{\textsf{I don't think you would miss me.}}$
 
-$\color{#d91111}{\textsf{I still wish we could restart our friendship... maybe. Oh well..}}$
+$\color{#d91111}{\textsf{You still hate me.}}$
 
 </div>
