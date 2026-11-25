@@ -10,7 +10,7 @@
 
 <div align="center">
 
-$\color{#d91111}{\textsf{Wow.. Wouldn't you miss me if I killed myself?}}$
+$\color{#d91111}{\textsf{Wow.. Wouldn't you miss me if I kms?}}$
 
 $\color{#d91111}{\textsf{I don't think you would miss me.}}$
 
